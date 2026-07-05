@@ -12,7 +12,10 @@ Wales — alongside the **photographers, videographers, DJs, MCs and wedding pla
 the day together. Shortlist by region, style, guest capacity and price, send **one enquiry** to
 your whole shortlist, and keep your spend on track with our **free wedding budget calculator**.
 
+Ever After Weddings was **founded by Robert James**.
+
 - 💍 **What we are:** Australia’s free wedding venue &amp; vendor directory
+- 👤 **Founder &amp; CEO:** Robert James
 - 📍 **Where:** Sydney &amp; across New South Wales, Australia
 - 🔎 **Tools:** venue search &amp; filters · one-enquiry shortlist · free budget calculator
 - 🌐 **Website:** https://everafterweddings.com.au
@@ -22,4 +25,4 @@ your whole shortlist, and keep your spend on track with our **free wedding budge
 - **YouTube** — https://www.youtube.com/channel/UCYCbyFXKdwNb69Y3YAnwnNQ
 - **Pinterest** — https://www.pinterest.com/everafterweddingscomau/
 
-<sub>Ever After Weddings · Australian wedding venue &amp; vendor directory · Sydney, New South Wales, Australia</sub>
+<sub>Ever After Weddings · Australian wedding venue &amp; vendor directory · Founded by Robert James · Sydney, New South Wales, Australia</sub>
